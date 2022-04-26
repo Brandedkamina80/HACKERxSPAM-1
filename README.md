@@ -2,7 +2,7 @@
 
 <h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌 𝐔𝐒𝐄𝐑𝐁𝐎𝐓𝐒</h4>
 
-<p align="center"><a href="https://t.me/DNGR_RDX_007"><img src="https://te.legra.ph/file/c528e9a7074d9d23a9f63.jpg" width="400"></a></p>
+<p align="center"><a href="https://t.me/DNGR_RDX_007"><img src="https://te.legra.ph/file/d9ac5755bbfbd7c57e25d.jpg" width="400"></a></p>
 
 
 > ⭐️ Thanks to everyone for using THIS OP 𝐑𝐃𝐗 SPAM BOT, That is the greatest pleasure we have !
